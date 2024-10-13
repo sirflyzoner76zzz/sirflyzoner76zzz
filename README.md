@@ -5,6 +5,9 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- 🌟 engineer and developer Editor
+- ✨ sentence and structures ⚙️ settings 🖼️ Framework https openings en El
+- 
 
 <!---
 sirflyzoner76zzz/sirflyzoner76zzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
